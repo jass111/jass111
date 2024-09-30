@@ -2,7 +2,7 @@
 - 👀 I’m interested in AI
 - 🌱 I’m currently learning AI , BUSINESS ANALYTICS
 - 💞️ I’m looking to collaborate on BUSINESS ANALYSIS 
-- 📫 How to reach me ( _SHEORAN_JAGJEET_) (INSTAGRAM)
+- 📫 How to reach me ( _singh_jass_011) (INSTAGRAM)
 - 😄 Pronouns: HE
 - ⚡ Fun fact: I'M COMMERCE STUDENT , STILL INTERESTED IN ALL THE STUFF RELATED TO SOFTWARE ENGINEERING , AI , AND  INFORMATION TECHNOLOGY
 - 
